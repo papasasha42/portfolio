@@ -14,6 +14,8 @@ That was a lot of work, but I keep pushing and still lack hands on experience an
 
 [My CV in pdf](https://drive.google.com/open?id=1Vv_qwtIx5hXzXO3GOGw8kZJEsfDHb9hw)
 
+---
+
 ## 📝 Done
 
 ---
